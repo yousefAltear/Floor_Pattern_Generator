@@ -1,3 +1,0 @@
-TULPAR
-DESKTOP-TQ3F36T 
-Thursday, October 3, 2024  6:16:42 PM
