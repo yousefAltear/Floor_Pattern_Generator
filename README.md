@@ -10,7 +10,7 @@
 ![1](https://github.com/user-attachments/assets/4baf6ec5-0aff-4b8a-9fea-a12ecf2025f7)
 
 
-![image](https://github.com/user-attachments/assets/b8f7d7c1-5e39-4c2c-8a31-f7360a8c3cbb)
+![340e973d-bab0-4bb4-a821-ad5f7287a0ac copy](https://github.com/user-attachments/assets/63978e18-04ee-45fd-a660-b0f3c9cd86e8)
 
 
 Dynamo Player
